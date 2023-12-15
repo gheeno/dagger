@@ -1,1 +1,1 @@
-the beginning of making money.
+start.
